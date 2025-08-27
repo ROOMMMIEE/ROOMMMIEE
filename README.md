@@ -1,10 +1,10 @@
-" helloo ヾ(＠⌒ー⌒＠)ノ !! "
+"i love you (♡ˊ͈ ꒳ ˋ͈) " "uhmm yeah,, (ᵕ,,¬﹏¬,,) " - ROBLOX EGG HUNTING (Feat. AlbertsStuff)
 
 
 
-![qnf2zd29l4ce1](https://github.com/user-attachments/assets/a81be10c-670c-4e17-92d5-a776b6ff2861)
+![qnf2zd29l4ce1](https://cdn.discordapp.com/attachments/1327091631463071808/1410107683406741524/jalbert-jayingee.gif?ex=68afd09e&is=68ae7f1e&hm=ff6de66cb367d4dec52e59aeab58f179fd475d709fcb14b23407f83b18f621c0)
 
 
 
 
-" credits to lemonm4ge 4 the gif !! o_O "
+
