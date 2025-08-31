@@ -2,7 +2,7 @@
 
 
 
-![qnf2zd29l4ce1](https://tenor.com/view/jalbert-jayingee-albertsstuff-gif-15514724373936035352)
+![qnf2zd29l4ce1](https://file.garden/ZqAmkBjacXp60T4c/jalbert-jayingee.gif)
 
 
 
