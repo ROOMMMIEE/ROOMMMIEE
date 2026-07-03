@@ -5,4 +5,4 @@
 https://moonajuanaweed.straw.page/                    
 https://juniibug.atabook.org/
 
-<img src="https://file.garden/ZqAmkBjacXp60T4c/amepan-alkiku.gif" width="500">
+<img src="https://file.garden/ZqAmkBjacXp60T4c/amepan-alkiku.gif" width="300">
